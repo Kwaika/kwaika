@@ -1,2 +1,3 @@
 # kwaika
-kwaika for public
+About me:
+Kwaika from GDUT|Guangzhou|Guangdong|China
